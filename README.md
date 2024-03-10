@@ -1,0 +1,2 @@
+# EDE
+TRUSTWALLET
